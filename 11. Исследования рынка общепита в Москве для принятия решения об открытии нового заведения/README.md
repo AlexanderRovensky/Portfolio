@@ -1,1 +1,1 @@
-[Ссылка на презентацию по исследованию](<https://disk.yandex.ru/i/1aIvi8HGlE1VuA>)
+[Ссылка на презентацию по исследованию](<https://disk.yandex.ru/i/V7pIRCV8T9ecTQ)>)
